@@ -1,5 +1,9 @@
 # When interesting is not interesting at all 
 
+- [firstdraft](index.md) 
+- [revision](revision.md)
+- [edit](edit.md)
+
 ## Revision
 
 When I think about a word, that triggers a negative response in me, it’s got to be the word: INTERESTING. You might be a little confused right now and I agree. Let me explain this as an artist. The word “interesting” in the English language may not have the same connotation as in Czech. Here, it’s just an inch away from calling something “weird “. It’s just supposed to be the more optimistic way of looking at things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
