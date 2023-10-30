@@ -1,6 +1,6 @@
 # When interesting is not interesting at all 
 
-- [firstdraft](index.md)
+- [firstdraft](index.md) 
 - [revision](revision.md)
 - [edit](edit.md)
 
@@ -13,6 +13,8 @@ OR "I just don’t understand it at all, and I do not care. I’ll just give you
 
 OR "Well. I do not like this at all, but I want to be polite about it. I don’t want to hurt your feelings.“ 
 
-"That’s interesting.“ They might mumble and change the subject fairy quickly. Does it always mean they are not sincere? No, some people using this word, may be interested in something you made. So they just give you a nod and this short answer to satisfy you. And then go somewhere else. Those are not usually really interested in what you’ve created. 
+"That’s interesting.“ They might mumble and change the subject fairy quickly. 
+
+Does it always mean they are not sincere? No, some people using this word, may be interested in something you made. So they just give you a nod and this short answer to satisfy you. And then go somewhere else. Those are not usually really interested in what you’ve created. 
 
 But if they truly meant it, they would ask you a few questions. Heck, it they are not a fan of your work, they can still try to see your point of view or be supportive of it. Or they can give you some useful criticism. But if they just say “interesting“ and throw it from the window in the speed of lighting, it might really just be "That’s weird“ dressed in a polite pair of shoes. Or in a nice sweater they got from their good old granny. And you like their grannie’s cookies, don’t you? So just shut your month, eat your cookies and let me change the “interesting” subject really quickly. 
