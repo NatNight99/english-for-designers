@@ -8,7 +8,7 @@
 
 When I think of a word, that triggers a negative response in me, it’s got to be: INTERESTING. You might be a little confused right now and I agree. So let me explain this as an artist. The word “interesting” in the English language may not have the same connotation as in Czech. Here, it’s only an inch away from calling something “weird “. "Interesting" may be a useful word when you want to be optimistic about things you don’t understand. Or if you need to sugarcoat something, you don’t like that much. 
 
-Do you remember those awkward situations, when you created something that meant the world to you, and this was someone’s response? That small moment of silence. Then the air thickens. The other person still has no idea, what to tell you about this so-called MASTERPIECE you made. So, they say: “OH, that’s interesting…“ But what some people mean by that feels more like: „Uh…I do not share your emotional investment in this. “ 
+Do you remember those awkward situations, when you created something that meant the world to you, and this was someone’s response? That small moment of silence. Then the air thickens. The other person still has no idea, what to tell you about that so-called MASTERPIECE you made. So, they say: “OH, that’s interesting…“ But what some people mean by that feels more like: „Uh…I do not share your emotional investment in this. “ 
 
 OR “I don’t understand this at all, and I don’t care. I’ll give you a short answer and we can keep going.“ 
 
