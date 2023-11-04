@@ -1,8 +1,8 @@
 # When interesting is not interesting at all 
 
-- [firstdraft](index.md) 
+- ### [edit](edit.md)
 - [revision](revision.md)
-- [edit](edit.md)
+- [firstdraft](index.md) 
 
 ## Edit
 
