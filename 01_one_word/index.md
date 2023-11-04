@@ -4,7 +4,7 @@
 - [revision](revision.md)
 - [edit](edit.md)
 
-## First draft 
+## First draft  
 
 When I think about a word, that triggers a negative response in me, the first thing that comes to mind is the word: INTERESTING. You might be a little confused right now and I fully agree. Let me explain it as an artist. The word “interesting” in the English language may not have the same connotation as in Czech. Here, it’s just a moment away from calling something “weird “, it’s just supposed to be more interested and optimistic way of looking at things we don’t fully understand but try to. 
 
