@@ -1,1 +1,1 @@
-[text.desctiption]()
+[text.desctiption](02_first_impressio/)
