@@ -1,4 +1,3 @@
-[text.desctiption](02_first_impressio/)
 # First impression
 
 - [Presentation](Presentation.md)
@@ -26,7 +25,7 @@ _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But
 
 ### Concept art
 
-photo here
+[text.desctiption](02_first_impressio/shot 1_concept.jpg)
 _Mr. Acornie overlooking his peaceful forest_
 
 photo here
