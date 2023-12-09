@@ -42,7 +42,7 @@ _Will he make it out alive?_
  ![Mr. Acornie concept art!](02_first_impression/pan zaloudek_loutka_02.png) 
  _Mr. Acornie concept_ 
  
-photo here
+
 
 
 ## Cat’s life ("Under the Cat’s Weather")
