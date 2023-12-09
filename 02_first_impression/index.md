@@ -27,8 +27,6 @@ _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But
 
 ![Mr. Acornie overlooking his forest!](shot_1_concept.jpg) 
 
-
-photo here
 _Will he make it out alive?_
 
 - "The Boots Walk Quietly" is an animated short that was created in the last summer as a school project
