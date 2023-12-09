@@ -39,7 +39,7 @@ _Will he make it out alive?_
  ### The characters
 
 
- ![Mr. Acornie concept art!](02_first_impression/pan zaloudek_loutka_02.png) 
+ ![Mr. Acornie concept art!](pan_zaloudek_loutka_02.jpg) 
  _Mr. Acornie concept_ 
  
 
