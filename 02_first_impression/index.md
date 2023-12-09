@@ -37,8 +37,9 @@ _Will he make it out alive?_
 - Watch the whole short here: https://www.youtube.com/watch?v=OsIBCO0sSIc
 
  ### The characters
-photo here
- 
+
+
+ ![Mr. Acornie concept art!](02_first_impression/pan zaloudek_loutka_02.png) 
  _Mr. Acornie concept_ 
  
 photo here
