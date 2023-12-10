@@ -12,7 +12,7 @@ I devoted my life to studying works of art. I’m still trying to find my own cr
 
 photo here
 
-_...I’m also a pessimistic witch in my spare time. Don’t tell my mum, I dare you..._ 
+
 
 ## [Featured projects](FeaturedProjects.md)
 
