@@ -42,10 +42,6 @@ _Will he make it out alive?_
  ![Mr. Acornie concept art!](Photos/pan_zaloudek_loutka_02.PNG)
  _Mr. Acornie concept_ 
 
- ![Ben](Photos/DEMO_FIX-Cover.jpg)
- 
-
-
 
 ## Cat’s life ("Under the Cat’s Weather")
 
