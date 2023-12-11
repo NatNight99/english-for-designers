@@ -25,7 +25,7 @@ _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But
 ### Concept art
 
 ![Mr. Acornie overlooking his forest!](shot_1_concept.jpg) 
-
+_Mr. Acornie overlooking his forest_
 
 ![Mr. Acornie overlooking his forest!](Photos/18_shot_fightscene.png) 
 _Will he make it out alive?_
