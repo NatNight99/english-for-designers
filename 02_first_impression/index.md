@@ -39,7 +39,7 @@ _Will he make it out alive?_
  ![Mr. Acornie concept art!](Photos/pan_zaloudek_loutka_02.PNG)
  _Mr. Acornie concept_ 
 
- ![The evil boot concept art!](Photos/boot_concept_art.jpg.png)
+ ![The evil boot concept art!](Photos/boot_concept_art.jpg)
 _The Evil Boot concept_
 
 ## Cat’s life ("Under the Cat’s Weather")
