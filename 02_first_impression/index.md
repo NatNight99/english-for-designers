@@ -7,8 +7,10 @@
 ## [About](About.md)
 
 Hi, my name is Natálie Němcová. 
-I’m an aspiring artist and writer with love for dark folktales and storytelling.  
-I devoted my life to studying works of art and mostly European mythology. I’m still trying to find my own creative voice as an illustrator and amateur writer. 
+I’m an aspiring illustrator, 3D sculptor, animator and writer with love for dark folktales and storytelling.
+I have been fascinated by nature and fantastical creatures all my life and it left a great impact on my work. 
+I devoted my life to studying works of art and mostly European mythology. 
+I’m still trying to find my own creative voice as an illustrator and amateur writer. 
 
  ![Potrait photo of Natálie Němcová!](Photos/potrait_photo.jpg)
 
