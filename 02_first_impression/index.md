@@ -45,7 +45,7 @@ _The Evil Boot concept_
 ## Cat’s life ("Under the Cat’s Weather")
 
 ### Concept art
-photo here 
+![Cat’s together concept art!](Photos/cats_together.jpg)
 
 _Cat’s together_
 
