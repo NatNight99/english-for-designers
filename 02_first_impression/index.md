@@ -63,13 +63,15 @@ _Cat’s together_
 ![Cats headshot concept art!](Photos/cats_headshot.png)
 
 ### Storyboard 
-3 pages of storyboard
+![Storyboard page 1!](Photos/storyboard_1.png)
+![Storyboard page 1!](Photos/storyboard_2.png)
+![Storyboard page 1!](Photos/storyboard_3.png)
+_A few pages of storyboard excercise_
 
- 
-     
+
 ## Babu in the Night City 
 
-photo here
+![Printed lipsynk 1!](Photos/Babu4_web.jpeg)  
 https://ceeanimation.eu/projects/babu-in-the-night-city-2/ 
 
 ### Director’s statement
@@ -77,13 +79,9 @@ _"Following the mysterious disappearance of her dad, 8-year-old Babu is often al
 
 ## Lipsynk
 
-photo here
-
+![Printed lipsynk 1!](Photos/lipsynk_1.jpg)
+![Printed lipsynk 2!](Photos/lipsynk_2.jpg)
 _Printed lipsynk_
-
-photo here
-
-_First version_
 
 - My work on the first long lenght film form Anima studio s.r.o., written and directed by Petr Vodička
 - lipsynk and 3D editing/modeling of the character parts
