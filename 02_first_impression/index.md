@@ -2,7 +2,7 @@
 
 - [Presentation](Presentation.md)
 - [About](About.md)
-- [Featured projects](FeaturedProjects.md)
+- [Featured projects](FeaturedProjects)
 
 ## [About](About.md)
 
