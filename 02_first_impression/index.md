@@ -17,9 +17,6 @@ I devoted my life to studying works of art and mostly European mythology. I’m 
 
 ## The Boots Walk Quietly
 
-### Gif 
-photo here
-
 _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But that all changes. On one fatefull day, a terrible evil with sharp teeth and two shoelaces walks into his life. Will he win his fight for survival? Or will the terrifying shoe devore him alive? We will see…_
 
 ### Concept art
@@ -27,7 +24,7 @@ _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But
 ![Mr. Acornie overlooking his forest!](shot_1_concept.jpg) 
 _Mr. Acornie overlooking his forest_
 
-![Mr. Acornie overlooking his forest!](Photos/18_shot_fightscene.png) 
+![Mr. Acornie vs. The evi boot!](Photos/18_shot_fightscene.png) 
 _Will he make it out alive?_
 
 - "The Boots Walk Quietly" is an animated short that was created in the last summer as a school project
@@ -39,10 +36,11 @@ _Will he make it out alive?_
 
  ### The characters
 
-
  ![Mr. Acornie concept art!](Photos/pan_zaloudek_loutka_02.PNG)
  _Mr. Acornie concept_ 
 
+ ![The evil boot concept art!](Photos/evil_boot.png)
+_The Evil Boot concept_
 
 ## Cat’s life ("Under the Cat’s Weather")
 
