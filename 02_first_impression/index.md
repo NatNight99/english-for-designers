@@ -14,7 +14,7 @@ photo here
 
 
 
-## [Featured projects](FeaturedProjects.md)
+## [Featured projects](FeaturedProjects.md) 
 
 ## The Boots Walk Quietly
 
