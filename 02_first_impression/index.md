@@ -10,7 +10,7 @@ Hi, my name is Natálie Němcová.
 I’m an aspiring illustrator, 3D sculptor, animator and writer with love for dark folktales and storytelling. 
 I have been fascinated by nature and fantastical creatures as long as I could remember it left a great impact on my work. 
 I devoted my life to studying works of art, animated films and European mythology. 
-I’m still trying to find my own creative voice as an illustrator and amateur writer. 
+I’m still trying to find my own creative voice. 
 
  ![Potrait photo of Natálie Němcová!](Photos/potrait_photo.jpg)
 
@@ -31,7 +31,7 @@ _Will he make it out alive?_
 
 - "The Boots Walk Quietly" is an animated short that was created in the last summer as a school project
 - It’s an animated horror with the fairy tale aspects sprinkled in
-- The main theme of this short is facing one’s fear 
+- The main theme of this short is facing one’s fear, inanimate objects coming to life and nature vs. man’s world 
 - To bring the story to life, I used the drawing program Krita, Adobe After Effects and Adobe Premiere 
 - The project was left with an open ending but with a lot of illustrations left to be animated
 - And for that, I have decided to continue and make this into my Bachelot work
