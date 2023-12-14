@@ -9,7 +9,7 @@
 
 Hi, my name is Natálie Němcová. 
 I’m an aspiring illustrator, 3D sculptor, animator and writer with love for dark folktales and storytelling. 
-I have been fascinated by nature and fantastical creatures as long as I could remember it left a great impact on my work. 
+I have been fascinated by nature and fantastical creatures as long as I could remember and it left a great impact on my work. 
 I devoted my life to studying works of art, animated films and European mythology. 
 I’m still trying to find my own creative voice. 
 
@@ -19,15 +19,15 @@ I’m still trying to find my own creative voice.
 
 As a child I was enchanted by animated movies (mostly 2D one’s from good old Disney Reinassance) and from that moment I became obsessed with drawing a creating stories. And I have been on this crazy yet pretty lonely art journey ever since. 
 
-Beside my love for wildlife and cats of all kind, I got really interested in European mythology. All those beutiful wonders of rather brutal mother nature and Greek heroes and monsters surely made an impact on me. 
+Beside my love for wildlife and cats of all kind, I got really interested in European mythology. All those beutiful wonders of rather brutal mother nature mixed with Greek heroes and monsters surely made an impact on me. 
 
-I got accepted into Art High school for graphic design and animation. It was a mixed experience. On one hand, I’ve learned a lot about programs and how to be critiqued by other people. On the other hand, I soon became artistically burned out and I have felt like this for years now. Does it mean I stopped doing artwork? No, but I did lose something on the way. But hey, that’s what being an "adult" means! The most important thing is that I have not given up yet. Not after all those years and secrifices. 
+I got accepted into Art High school for graphic design and animation. It was a mixed experience. On one hand, I’ve learned a lot about programs and how to be critiqued by other people. On the other hand, I soon became artistically burned out and I have felt like this for years now. Does it mean I have stopped doing artwork? No, but I did lose something on the way. But hey, that’s what being an "adult" means! The most important thing is that I have not given up yet. Not after all those secrifices. 
 
-But anyway! I keep on drawing. I can do traditional art, I love colored pencils and markers! And I also have a history of drawing with my ballpoint pen in classes, how shameful... I can also do digital art, sculpting (with clay or in software). My main subjects is mostly making character designs and making fanstastical creatures. Sometimes for fun but mostly for my personal projects. 
+But anyway! I keep on drawing. I can do traditional art, I love colored pencils and markers! And I also have a history of drawing with my ballpoint pen in classes, oh how shameful of me... I can also do digital art, sculpting (with clay or in software). My main subjects are mostly making character designs, making fanstastical creatures, illustrations or storyboards. Sometimes for fun but mostly for my personal projects. 
 
-Writing stories is my passion. I’d love to do it more again, because it makes me feel whole and not so alone all the time. I want to turn to storytelling and drawing more storyboards in the near future. 
+Writing stories is my passion. I’d love to do it more again, because it makes me feel whole and not so alone all the time. I want to turn to storytelling and storyboarding more in the near future. 
 
-And yeah. I study animation on Prague school of Creative Communication! And even though I’ve felt just like an illustrator for a long time, I got my first important job in a small studio in Prague. I have worked at mostly puppet focused Anima animation studio for almost a year now and I learned a lot about confronting reality of working in a team on a project like this. They are making their first full-length animated movie and it’s a first time for everyone, but more about that later! 
+And yeah. I study animation on Prague school of Creative Communication! And even though I’ve felt just like an illustrator for a long time, I got my first important job in a small studio in Prague. I have worked at mostly puppet focused Anima animation studio for almost a year. I have learned a lot about confronting reality of working in a team on a project like this. They are making their first full-length animated movie and it’s a first time for everyone, but more about that later! 
 
 Now to a few of my latest projects. 
 
