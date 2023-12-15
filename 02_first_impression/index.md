@@ -19,7 +19,7 @@ I’m still trying to find my own creative voice.
 
 As a child I was enchanted by animated movies (mostly 2D one’s from good old Disney Reinassance) and from that moment I became obsessed with drawing a creating stories. And I have been on this crazy yet pretty lonely art journey ever since. 
 
-Beside my love for wildlife and cats of all kind, I got really interested in European mythology. All those beutiful wonders of rather brutal mother nature mixed with Greek heroes and monsters surely made an impact on me. 
+Beside my love for wildlife and cats of all kind, I got really interested in European mythology. All those beautiful wonders of rather brutal mother nature mixed with Greek heroes and monsters surely made an impact on me. 
 
 I got accepted into Art High school for graphic design and animation. It was a mixed experience. On one hand, I’ve learned a lot about programs and how to be critiqued by other people. On the other hand, I soon became artistically burned out. Does it mean I have stopped doing artwork? No, but I did lose something on the way. But hey, that’s what being an "adult" means! The most important thing is that I have not given up yet. Not after all those secrifices. 
 
