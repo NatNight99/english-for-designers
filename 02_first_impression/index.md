@@ -23,7 +23,7 @@ Beside my love for wildlife and cats of all kind, I got really interested in Eur
 
 I got accepted into Art high school of graphic design and animation. It was a mixed experience. On one hand, I’ve learned a lot about programs and how to be critiqued by other people. On the other hand, I soon became artistically burned out. Does it mean I have stopped doing artwork? No, but I did lose something on the way. But hey, that’s what being an "adult" means! The most important thing is that I have not given up yet. Not after all those secrifices. 
 
-But anyway! I keep on drawing. I can do traditional art, I love colored pencils and markers! And I also have a history of drawing with my ballpoint pen in classes, oh how shameful of me... I can also do digital art, sculpting (with clay or in software). My main subjects are mostly making character designs, creating fanstastical creatures, illustrations or storyboards. 
+But anyway! I keep on drawing. I can do traditional art, I love colored pencils and markers! And I also have a history of drawing with my ballpoint pen in classes, oh how shameful of me... I can also do digital art, sculpting (with clay or in software). My main subjects are mostly making character designs, creating fantastical creatures, illustrations or storyboards. 
 
 Writing stories is my passion. I’d love to do it more again, because it makes me feel whole and not so alone all the time. I want to return to storytelling and storyboarding more in the near future. 
 
@@ -46,14 +46,15 @@ _Mr. Acornie overlooking his forest_
 ![Mr. Acornie vs. The evi boot!](Photos/18_shot_fightscene.png) 
 _Will he make it out alive?_
 
-- "The Boots Walk Quietly" is an animated short that was created in the last summer
-- It’s an animated horror with the fairy tale aspects sprinkled in
+- "The Boots Walk Quietly" is an animated short that was created in the last summer.
+- It’s an animated horror with the fairy tale aspects sprinkled in.
 - The main theme of this short is facing one’s fear, inanimate objects coming to life and nature vs. man’s world 
 - To bring the story to life, I used the drawing program Krita, Adobe After Effects for animation and Adobe Premiere for editing
-- I have spend a whole August just drawing all of the backdrounds, characters and so on and then I animated it in two weeks at day and night 
-- The film was left with an open ending but with a lot of illustrations left to be animated
-- And for that, I have decided to continue this and make it into my Bachelot work
-- You could have seen a few snippets of "Boots walk quietly" on school exhibition on Náplavka or in the park next to our building 
+- I have spend a whole August just drawing all of the backdrounds, characters and so on and then I animated it in two weeks at day and night. 
+- The film was left with an open ending but with a lot of illustrations left to be animated.
+- And for that, I have decided to continue this and make it into my Bachelot work.
+- You could have seen a few snippets of "Boots walk quietly" on school exhibition, which was on Náplavka or in the park next to our building.
+- It got accepted into "Prague Youth festival" which I will be attending day before Christmas. 
 - Watch the whole short here: https://www.youtube.com/watch?v=OsIBCO0sSIc
 
  ### The characters
@@ -71,10 +72,10 @@ _The Evil Boot concept_
 
 _Cat’s together_
 
-- Storyboard and basic story
-- Made as an excercise in concept and storyboard for my drawing lessons with Mr. Korman 
+- Storyboard and basic story.
+- Made as an excercise in concept and storyboard for my drawing lessons with Mr. Korman. 
 - The story is about a cat family, living their dream life, until the arrival in form of a small disorderly kitten. Such a happy surprise for the main character's birthday...because she clearly needed a sibling...  
-- It’s basically a more serious story about harder subjects disguised as typical "animal’s adventures" popular in the 1980-1990s (live-action or animated)
+- It’s basically a more serious story about harder subjects disguised as typical "animal’s adventures" popular in the 1980-1990s (live-action or animated). 
   
 - The main cast consists of:
   1. Blanka - a prideful sphynx cat who needs to learn to be comfortable in her own skin
@@ -108,7 +109,7 @@ _"Following the mysterious disappearance of her dad, 8-year-old Babu is often al
 _Printed lipsynk_
 
 - My work on the first long lenght film form Anima studio s.r.o., written and directed by Petr Vodička
-- I sculpt lipsynk and do 3D editing/modeling of the character parts and then it gets 3D printed so they can animate with it
+- I sculpt lip synk and do 3D editing/modeling of the character parts and then it gets 3D printed so they can animate with it.
 - I have been working in the team of artists, who specialize in animation and making of puppetry. It is interesting experience. I work independently but also with people and it gets a bit crazy sometimes. But it’s mostly a big responsibility and honor to be a part of this.
 - I have been there for a year there. I have worked on more then a 10 puppets and made more then 50 expressions now (probably, maybe more, it’s a lot, stopped counting at this point, some of them got remade multiple times when we still had no idea what we were doing). 
 - If things go smoothily the film is expected to come out in 2026, so if the moutgh movement of the puppets will look great, yey! If not...uhhh...you will know whose fault that is XD It’s not usual to do complex lipsynk with puppets in Czech republic. 
