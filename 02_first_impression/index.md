@@ -21,7 +21,7 @@ As a child I was enchanted by animated movies (mostly 2D one’s from good old D
 
 Beside my love for wildlife and cats of all kind, I got really interested in European mythology. All those beutiful wonders of rather brutal mother nature mixed with Greek heroes and monsters surely made an impact on me. 
 
-I got accepted into Art High school for graphic design and animation. It was a mixed experience. On one hand, I’ve learned a lot about programs and how to be critiqued by other people. On the other hand, I soon became artistically burned out and I have felt like this for years now. Does it mean I have stopped doing artwork? No, but I did lose something on the way. But hey, that’s what being an "adult" means! The most important thing is that I have not given up yet. Not after all those secrifices. 
+I got accepted into Art High school for graphic design and animation. It was a mixed experience. On one hand, I’ve learned a lot about programs and how to be critiqued by other people. On the other hand, I soon became artistically burned out. Does it mean I have stopped doing artwork? No, but I did lose something on the way. But hey, that’s what being an "adult" means! The most important thing is that I have not given up yet. Not after all those secrifices. 
 
 But anyway! I keep on drawing. I can do traditional art, I love colored pencils and markers! And I also have a history of drawing with my ballpoint pen in classes, oh how shameful of me... I can also do digital art, sculpting (with clay or in software). My main subjects are mostly making character designs, creating fanstastical creatures, illustrations or storyboards. 
 
