@@ -23,11 +23,11 @@ Beside my love for wildlife and cats of all kind, I got really interested in Eur
 
 I got accepted into Art High school for graphic design and animation. It was a mixed experience. On one hand, I’ve learned a lot about programs and how to be critiqued by other people. On the other hand, I soon became artistically burned out and I have felt like this for years now. Does it mean I have stopped doing artwork? No, but I did lose something on the way. But hey, that’s what being an "adult" means! The most important thing is that I have not given up yet. Not after all those secrifices. 
 
-But anyway! I keep on drawing. I can do traditional art, I love colored pencils and markers! And I also have a history of drawing with my ballpoint pen in classes, oh how shameful of me... I can also do digital art, sculpting (with clay or in software). My main subjects are mostly making character designs, making fanstastical creatures, illustrations or storyboards. Sometimes for fun but mostly for my personal projects. 
+But anyway! I keep on drawing. I can do traditional art, I love colored pencils and markers! And I also have a history of drawing with my ballpoint pen in classes, oh how shameful of me... I can also do digital art, sculpting (with clay or in software). My main subjects are mostly making character designs, creating fanstastical creatures, illustrations or storyboards. 
 
-Writing stories is my passion. I’d love to do it more again, because it makes me feel whole and not so alone all the time. I want to turn to storytelling and storyboarding more in the near future. 
+Writing stories is my passion. I’d love to do it more again, because it makes me feel whole and not so alone all the time. I want to return to storytelling and storyboarding more in the near future. 
 
-And yeah. I study animation on Prague school of Creative Communication! And even though I’ve felt just like an illustrator for a long time, I got my first important job in a small studio in Prague. I have worked at mostly puppet focused Anima animation studio for almost a year. I have learned a lot about confronting reality of working in a team on a project like this. They are making their first full-length animated movie and it’s a first time for everyone, but more about that later! 
+And yeah. I study animation on Prague school of Creative Communication! And even though I’ve felt just like an illustrator for a long time, I got my first important job in a small studio. I have worked at mostly puppet focused Anima animation studio for almost a year. I have learned a lot about confronting reality of working in a team on this project. They are making their first full-length animated movie and it’s a first time for everyone, but more about that later! 
 
 Now to a few of my latest projects. 
 
@@ -49,10 +49,11 @@ _Will he make it out alive?_
 - "The Boots Walk Quietly" is an animated short that was created in the last summer
 - It’s an animated horror with the fairy tale aspects sprinkled in
 - The main theme of this short is facing one’s fear, inanimate objects coming to life and nature vs. man’s world 
-- To bring the story to life, I used the drawing program Krita, Adobe After Effects and Adobe Premiere
+- To bring the story to life, I used the drawing program Krita, Adobe After Effects for animation and Adobe Premiere for editing
 - I have spend a whole August just drawing all of the backdrounds, characters and so on and then I animated it in two weeks at day and night 
 - The film was left with an open ending but with a lot of illustrations left to be animated
-- And for that, I have decided to continue and make this into my Bachelot work
+- And for that, I have decided to continue this and make it into my Bachelot work
+- You could have seen a few snippets of "Boots walk quietly" on school exhibition on Náplavka or in the park next to our building 
 - Watch the whole short here: https://www.youtube.com/watch?v=OsIBCO0sSIc
 
  ### The characters
@@ -70,14 +71,14 @@ _The Evil Boot concept_
 
 _Cat’s together_
 
-- Storyboard and basic story concept
+- Storyboard and basic story
 - Made as an excercise in concept and storyboard for my drawing lessons with Mr. Korman 
-- The story is about a cat family, living their dream life, until the arrival in form of a small disorderly kitten. Such a happy arrival for the main characters birthday...because she clearly needed a sibling...  
+- The story is about a cat family, living their dream life, until the arrival in form of a small disorderly kitten. Such a happy surprise for the main character's birthday...because she clearly needed a sibling...  
 - It’s basically a more serious story about harder subjects disguised as typical "animal’s adventures" popular in the 1980-1990s (live-action or animated)
   
 - The main cast consists of:
-  1. Blanka - a prideful sphynx cat who needs to learn to be confortable in her own skin
-  2. Rupert - little energetic bengal kitten stealing Blanka’s spotlight and is acting like a spoiled brat
+  1. Blanka - a prideful sphynx cat who needs to learn to be comfortable in her own skin
+  2. Rupert - little energetic bengal kitten who is stealing Blanka’s spotlight and acts like a spoiled brat
   3. Claudius - an old wise male maine coon cat, trying to keep the family together while facing his own mortality
  
 ### Headshot illustration
@@ -107,7 +108,7 @@ _"Following the mysterious disappearance of her dad, 8-year-old Babu is often al
 _Printed lipsynk_
 
 - My work on the first long lenght film form Anima studio s.r.o., written and directed by Petr Vodička
-- I moddel lipsynk and 3D editing/modeling of the character parts and then it gets 3D printed and they animate with it
-- I have been working in team of artist’s, who specialize in animation and making of puppetry, it is interesting experience. I work independently but also with people and it gets a bit crazy sometimes. But it’s mostly a big responsibility and honor to be a part of this.
-- I have worked for a year there and have worked at more then a 10 puppets and made more then 50 expressions now (probably, maybe more, it’s a lot, stopped counting at this point, some of them got remade multiple times when we still had no idea what we were doing). 
-- If things go smoothily the film is expected to come out in 2026, so if the moutgh movement of the puppets will look great, yey! If not...uhhh...you will know whose fault that is XD 
+- I sculpt lipsynk and do 3D editing/modeling of the character parts and then it gets 3D printed so they can animate with it
+- I have been working in the team of artists, who specialize in animation and making of puppetry. It is interesting experience. I work independently but also with people and it gets a bit crazy sometimes. But it’s mostly a big responsibility and honor to be a part of this.
+- I have been there for a year there. I have worked on more then a 10 puppets and made more then 50 expressions now (probably, maybe more, it’s a lot, stopped counting at this point, some of them got remade multiple times when we still had no idea what we were doing). 
+- If things go smoothily the film is expected to come out in 2026, so if the moutgh movement of the puppets will look great, yey! If not...uhhh...you will know whose fault that is XD It’s not usual to do complex lipsynk with puppets in Czech republic. 
