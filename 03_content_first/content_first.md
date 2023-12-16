@@ -1,5 +1,5 @@
 # Content first
 
-## About me 
-## My work 
+### About me 
+### My work 
 ### Writing
