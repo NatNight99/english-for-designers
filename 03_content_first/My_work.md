@@ -45,7 +45,7 @@ The storyboard is about how Blanka got a brand new younger brother on her birthd
 
 ## The Boots Walk Quietly
 
-![Mr. Acornie showcase gif!](Photos/ezgif.com-video-to-gif-converted.gif)
+![Mr. Acornie showcase gif!](Photos/ezgif.com-video-to-gif-converted.gif) 
 
 _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But that all changes. On one fatefull day, a terrible evil with sharp teeth and two shoelaces walks into his life. Will he win his fight for survival? Or will the terrifying shoe devore him alive? We will see…_
 
