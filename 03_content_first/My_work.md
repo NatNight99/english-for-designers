@@ -11,7 +11,7 @@ _"Following the mysterious disappearance of her dad, 8-year-old Babu is often al
 
 ## My work and innovation process at Anima studio
 
-Almost a year ago, I got accepted into Anima studio s.r.o. to work 
+Almost a year ago, I got accepted into Anima studio s.r.o. to work on their first full-lengh film: _Babu in the night city_. 
 
 - My work on the first long lenght film form Anima studio s.r.o., written and directed by Petr Vodička
 - I sculpt lip synk and do 3D editing/modeling of the character parts and then it gets 3D printed so they can animate with it.
