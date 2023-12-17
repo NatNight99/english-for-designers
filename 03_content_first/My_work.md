@@ -63,3 +63,5 @@ _Mr. Acornie character exploration_
 Read my "One word" essay here: 
 - [Writing](Writing.md)
 
+- [About me](About_me.md) 
+- [My work](My_work.md) - you are here
