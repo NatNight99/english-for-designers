@@ -9,7 +9,7 @@ _"Following the mysterious disappearance of her dad, 8-year-old Babu is often al
 
 -_Petr Vodička_ 
 
-## My work at Anima studio
+### My work at Anima studio
 
 Almost a year ago, I got accepted into Anima studio s.r.o. to work on their first full-lengh film: _Babu in the night city_. I sculpt lip-synk in 3D programs for a lot of characters. I also edit whatever body part they needs to be changed. Then it all gets 3D printed and they can animate with it. 
 
