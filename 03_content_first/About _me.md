@@ -27,3 +27,4 @@ My main point of interest are mostly making character designs, creating fantasti
 Writing stories is my passion. I want to get more into making actual storyboard in the near future. 
 
 Now to a few of my latest projects. 
+(link to other page)
