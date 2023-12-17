@@ -7,7 +7,7 @@ I have been fascinated by nature and fantastical creatures as long as I could re
 I devoted my life to studying works of art, animated films and European mythology. 
 I’m still finding my creative voice, but I know what I’d like to achieve in life. 
 
-(Head shot) 
+![potrait for english_2](https://github.com/NatNight99/english-for-designers/assets/129601977/2d0206f5-93ac-4090-9506-7518df017507)
 
 
 ## Where I’m curently at?  
