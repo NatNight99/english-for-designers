@@ -20,6 +20,9 @@ I have worked on more then 10 characters. I probably did close to 60 (maybe more
 
 If things go smoothly the film should come out in 2026. I hope everything goes well. It could be very important thing for me in the future. 
 
+![babu_hlavicky](https://github.com/NatNight99/english-for-designers/assets/129601977/9e043ea5-93c5-4030-b79b-437dd9ee0999)
+_lip-synk_
+
 ## Cat’s life ("Under the Cat’s Weather")
 
 ### Concept art
