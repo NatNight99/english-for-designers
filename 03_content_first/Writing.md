@@ -14,3 +14,7 @@ Does it always mean they are not sincere? No, some people using this word, may b
 
 But if they truly meant it, they would ask you a few questions. Heck, it they are not a fan of your work, they can try to see your point of view. People can still be supportive of something they don’t fully understand. Or maybe they can give you some useful criticism. But if they just say _interesting_ and throw it out of the window in the speed of light, it might be a „That’s weird“ dressed in a nice pair of shoes. Or in a that cozy sweater they got from their good old granny. And you like their grannie’s cookies, don’t you? So just shut your month, eat your cookies, and let me change the _interesting_ subject really quickly. 
 
+
+- [About me](About_me.md) 
+- [My work](My_work.md) 
+- [Writing](Writing.md) - you are here
