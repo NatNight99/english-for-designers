@@ -1,6 +1,6 @@
 # When interesting is not interesting at all 
 
-When I think about a word, that triggers a negative response in me, it’s got to be the: INTERESTING. You might be a little confused right now and I agree. Let me explain this as an artist. The word _interesting_ in the English language may not have the same connotation as in Czech. Here, it’s just an inch away from calling something “weird “. It’s just supposed to be the more optimistic way of looking at things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
+When I think about a word, that triggers a negative response in me, it’s got to be the: INTERESTING. You might be a little confused right now and I agree. Let me explain this as an artist. The word _interesting_ in the English language may not have the same connotation as in Czech. Here, it’s just an inch away from calling something _weird_. It’s just supposed to be the more optimistic way of looking at things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
 
 What I mean by that are those awkward social interactions when you perhaps made something that you poured your heart into, and this is the response you got. That small moment of silence. Then the air thickens. And the other person has no idea, what to tell you about that so-called MASTERPIECE you just made. So, they simply say: “OH, interesting… “ But what most people mean by that (well, not always, but bear with me) is something like: „Uh…I do not share your emotional investment in this. “  
 
