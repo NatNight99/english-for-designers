@@ -43,5 +43,18 @@ _A few pages of storyboard_
 
 The storyboard is about how Blanka got a brand new younger brother on her birthday. Well...let’s just say it was a surprise to die for... 
 
+## The Boots Walk Quietly
+GIF HERE/PICTURE
+
+_Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But that all changes. On one fatefull day, a terrible evil with sharp teeth and two shoelaces walks into his life. Will he win his fight for survival? Or will the terrifying shoe devore him alive? We will see…_
+
+_The Boots walk quietly_ is an animated 2-minute short animated 2D film created in the last summer. Genre-wise it is horror with fairy tale aspects sprinkled in. The main themes are facing one’s fear, inanimate objects coming to life and nature vs. man’s creations (which is a old creepy boot that was left to rot in the forest). 
+
+To bring this story to life, I created around 30 digital illustrations (for this short, only 10 were used in the end) and then I animated it in After Effects. Then I just edited it in Premiere Pro, added sound and voila! I have spend whole August drawing everything and I animated it in two weeks, which was very exhausing. 
+
+The film was left open-ended and with a lot of illustrations to be animated. So I have decided to make it into my Bachelot work. The short was also recently accepted into "Prague Youth festival" and few illustrations were used for our school exhibition on Náplavka or in the park next to school. 
+
+You can watch the whole short here: https://www.youtube.com/watch?v=OsIBCO0sSIc
+
 
 
