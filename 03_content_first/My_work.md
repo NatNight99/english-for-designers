@@ -36,7 +36,7 @@ The main cast consists of:
   1. Blanka - a prideful sphynx cat who needs to learn to be comfortable in her own skin
   2. Rupert - little energetic bengal kitten who is stealing Blanka’s spotlight and acts like a spoiled brat
   3. Claudius - an old wise male maine coon cat, trying to keep the family together while facing his own mortality
- 
+     
 ![storyboard_few pages](https://github.com/NatNight99/english-for-designers/assets/129601977/ac971764-3cf3-4106-89b0-ddcf58487f96)
 _A few pages of storyboard_
 
