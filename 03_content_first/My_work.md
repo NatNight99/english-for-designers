@@ -2,13 +2,13 @@
 
 ## Babu in the Night City 
 
-![Babu4_web](https://github.com/NatNight99/english-for-designers/assets/129601977/971b4df4-efad-432e-81f2-5dad2650d63c)
-https://ceeanimation.eu/projects/babu-in-the-night-city-2/ 
-
 ### Director’s statement
 _"Following the mysterious disappearance of her dad, 8-year-old Babu is often alone at home with her parrot. When a thief steals it, Babu sets off on a night-time expedition to save her animal friend. During her journey, she finds unexpected allies: an unsuccessful rapper, a night jogger and a homeless man. Together, they must overcome the mad Professor X who is able to transform humans into animals and vice versa. A film-noir detective puppet-animated story takes place in a contemporary night-time city where the inhabitants take on dimensions of fairy-tale characters and all the while don ́t lose touch with everyday social reality."_ 
 
 -_Petr Vodička_ 
+
+![Babu4_web](https://github.com/NatNight99/english-for-designers/assets/129601977/971b4df4-efad-432e-81f2-5dad2650d63c)
+https://ceeanimation.eu/projects/babu-in-the-night-city-2/ 
 
 ### My work at Anima studio
 
