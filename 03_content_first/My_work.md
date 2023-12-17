@@ -56,6 +56,8 @@ The film was left open-ended and with a lot of illustrations to be animated. So 
 
 You can watch the whole short here: https://www.youtube.com/watch?v=OsIBCO0sSIc
 
+![character design 001](https://github.com/NatNight99/english-for-designers/assets/129601977/5672f566-af23-47cd-b910-10758d132a57) 
+
 Read my "One word" essay here: 
 - [Writing](Writing.md)
 
