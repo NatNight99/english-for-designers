@@ -18,3 +18,27 @@ It was actually a bit of a challenge at first. Lip-synk in Czech puppetery is no
 I have worked on more then 10 characters. I probably did close to 60 (maybe more, I’ve stopped counting) expressions. And I can now do it much faster and better then before. 
 
 If things go smoothly the film should come out in 2026. I hope everything goes well. It could be very important thing for me in the future. 
+
+## Cat’s life ("Under the Cat’s Weather")
+
+### Concept art
+
+
+_Cat’s together_
+
+This was done as a passion project/exersice in story, character design and storyboard. _Under cat’s weather_ (hint to the popular saying "under the dog’s weather), is a little story concept about a family of cats living their usual cat life, until the arrival of one disordely kitten. Such a happy surprise for vile main character’s birthday to get a new little sibling, who is gonna steal her spotligh soon... 
+
+It is a smaller project in the style of "animal going on an adventure", which were popular in the 1980s-1990s in children media, in the life-action form or animated. It tackles the typical life of anthropomorphic cats living their best yet sometimes mischievous lives with loving owner. Until family problems arrise. But it also tacles some more serious problems, that even people can face (like feelings of not being enough or coming to terms with getting older). 
+  
+The main cast consists of:
+  1. Blanka - a prideful sphynx cat who needs to learn to be comfortable in her own skin
+  2. Rupert - little energetic bengal kitten who is stealing Blanka’s spotlight and acts like a spoiled brat
+  3. Claudius - an old wise male maine coon cat, trying to keep the family together while facing his own mortality
+ 
+### Headshot illustration
+
+### Storyboard 
+
+_A few pages of storyboard excercise_
+
+The storyboard is about how Blanka got a brand new younger brother on her birthday. Well...let’s just say it was a surprise to die for... 
