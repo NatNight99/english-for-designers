@@ -39,6 +39,9 @@ The main cast consists of:
 
 ### Storyboard 
 
-_A few pages of storyboard excercise_
+_A few pages of storyboard_
 
 The storyboard is about how Blanka got a brand new younger brother on her birthday. Well...let’s just say it was a surprise to die for... 
+
+
+
