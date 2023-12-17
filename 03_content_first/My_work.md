@@ -11,10 +11,10 @@ _"Following the mysterious disappearance of her dad, 8-year-old Babu is often al
 
 ## My work and innovation process at Anima studio
 
-Almost a year ago, I got accepted into Anima studio s.r.o. to work on their first full-lengh film: _Babu in the night city_. 
+Almost a year ago, I got accepted into Anima studio s.r.o. to work on their first full-lengh film: _Babu in the night city_. I sculpt lip-synk in 3D programs for a lot of characters. I also edit whatever body part they needs to be changed. Then it all gets 3D printed and they can animate with it. 
 
-- My work on the first long lenght film form Anima studio s.r.o., written and directed by Petr Vodička
-- I sculpt lip synk and do 3D editing/modeling of the character parts and then it gets 3D printed so they can animate with it.
-- I have been working in the team of artists, who specialize in animation and making of puppetry. It is interesting experience. I work independently but also with people and it gets a bit crazy sometimes. But it’s mostly a big responsibility and honor to be a part of this.
-- I have been there for a year there. I have worked on more then a 10 puppets and made more then 50 expressions now (probably, maybe more, it’s a lot, stopped counting at this point, some of them got remade multiple times when we still had no idea what we were doing). 
-- If things go smoothily the film is expected to come out in 2026, so if the moutgh movement of the puppets will look great, yey! If not...uhhh...you will know whose fault that is XD It’s not usual to do complex lipsynk with puppets in Czech republic.
+It was actually a bit of a challenge at first. Lip-synk in Czech puppetery is not something that is usually done and some projects even failed trying to make it possible. But I think we found our own strategy how to make it. I’m most likely the youngest person that works on that project, so I try to bring as much innovation that I can. It is a big honor and responsibility. 
+
+I have worked on more then 10 characters. I probably did close to 60 (maybe more, I’ve stopped counting) expressions. And I can now do it much faster and better then before. 
+
+If things go smoothly the film should come out in 2026. I hope everything goes well. It could be very important thing for me in the future. 
