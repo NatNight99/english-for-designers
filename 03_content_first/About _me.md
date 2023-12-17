@@ -1,5 +1,6 @@
 # About me 
 
+## Introduction 
 Hi, my name is Natálie Němcová. 
 I’m an aspiring illustrator, 3D sculptor, animator, and writer with love for folktales and storytelling. 
 I have been fascinated by nature and fantastical creatures as long as I could remember and it left a great impact on my work. 
@@ -10,11 +11,9 @@ I’m still finding my creative voice, but I know what I’d like to achieve in 
 
 
 ## Where I’m curently at?  
-
 I’m currently studying animation and visual effects on Prague school of Creative communication. And even though I’ve felt more like an illustrator for a long time, I got my first important job in a small animation studio. My workplace, named Anima animation studio, is based in Prague and focuses mostly on puppet animation. I have been working there for almost a year now. I have learned a lot about teamwork and reality of working on complex projects. We are currently making their first animated full-lengh animated movie. I try to help as much as I can in the field of computer innovation and 3D print. 
 
 ## How I got here? 
-
 As a child I was enchanted by animated movies (mostly 2D one’s from Disney Reinassance) and from that moment I became obsessed with drawing a creating stories. And I have been on my art journey ever since. 
 
 Beside my love for wildlife and cats of all kind, I got really interested in European mythology. All those beautiful wonders of rather brutal mother nature mixed with Greek heroes and monsters made a great impact on me. 
