@@ -45,8 +45,6 @@ The storyboard is about how Blanka got a brand new younger brother on her birthd
 
 ## The Boots Walk Quietly
 
-![Mr. Acornie showcase gif!](03_first_impression/film_shots.png) 
-
 _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But that all changes. On one fatefull day, a terrible evil with sharp teeth and two shoelaces walks into his life. Will he win his fight for survival? Or will the terrifying shoe devore him alive? We will see…_
 
 _The Boots walk quietly_ is an animated 2-minute short animated 2D film created in the last summer. Genre-wise it is horror with fairy tale aspects sprinkled in. The main themes are facing one’s fear, inanimate objects coming to life and nature vs. man’s creations (which is a old creepy boot that was left to rot in the forest). 
