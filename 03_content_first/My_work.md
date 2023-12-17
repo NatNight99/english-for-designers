@@ -36,8 +36,8 @@ The main cast consists of:
   1. Blanka - a prideful sphynx cat who needs to learn to be comfortable in her own skin
   2. Rupert - little energetic bengal kitten who is stealing Blanka’s spotlight and acts like a spoiled brat
   3. Claudius - an old wise male maine coon cat, trying to keep the family together while facing his own mortality
-     
-![storyboard_few pages](https://github.com/NatNight99/english-for-designers/assets/129601977/ac971764-3cf3-4106-89b0-ddcf58487f96)
+
+![storyboard_few pages](https://github.com/NatNight99/english-for-designers/assets/129601977/264a415f-f71d-4f94-91a9-483b9801375a)
 _A few pages of storyboard_
 
 The storyboard is about how Blanka got a brand new younger brother on her birthday. Well...let’s just say it was a surprise to die for... 
