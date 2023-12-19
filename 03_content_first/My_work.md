@@ -25,7 +25,7 @@ _Older lip-synk_
 
 ## Cat’s life ("Under the Cat’s Weather")
 
-This was done as a passion project/exersice in story, character design and storyboard. _Under cat’s weather_ (hint to the popular saying "under the dog’s weather), is a little story concept about a family of cats living their usual cat life, until the arrival of one disordely kitten. Such a happy surprise for the main character’s birthday...How happy she must have been to get a little sibling, who is gonna steal her spotligh soon... 
+This was done as a passion project/exersice in story, character design and storyboard. _Under the cat’s weather_ (hint to the popular saying "under the dog’s weather), is a little story concept about a family of cats living their usual cat life, until the arrival of one disordely kitten. Such a happy surprise for the main character’s birthday...How happy she must have been to get a little sibling, who is gonna steal her spotligh soon... 
 
 It is a smaller project in the style of "animals going on an adventure", which were popular in the 1980s-1990s in children media, in the life-action form or animated. It tackles the typical life of anthropomorphic cats living their best yet sometimes mischievous lives with a loving owner. Until the family problems arrise. But it also gets into some more serious issues, that even people can face (like feelings of not being enough or coming to terms with our own mortality). 
 
