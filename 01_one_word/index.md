@@ -4,7 +4,7 @@ by Natálie Němcová
 
 4 November 2023
 
-(ADD ARTWORK)
+![White squares on the wooden table with letters written on them forming a word interesting together!](Photo01/interesting_picture.jpg) 
 
 When I think about a word that triggers a negative response in me, it has to be: interesting. (Discuss its various uses and meanings here.) It’s often considered to be a proper reaction to give to things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
 
