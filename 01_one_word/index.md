@@ -1,10 +1,10 @@
 # When Interesting Is Not Interesting at All 
 
-- [revision](revision.md)
-- [edit](edit.md)
-- [firstdraft](index.md) 
+by Natálie Němcová
 
-## Revision
+4 November 2023
+
+(ADD ARTWORK)
 
 When I think about a word, that triggers a negative response in me, it’s got to be: INTERESTING. You might be a little confused right now and I agree. Let me explain this as an artist. The word “interesting” in the English language may not have the same connotation as in Czech. Here, it’s just an inch away from calling something “weird “. It’s just supposed to be the more optimistic way of looking at things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
 
@@ -19,4 +19,8 @@ OR “Well. I do not like this at all, but I want to be polite about it. I don�
 Does it always mean they are not sincere? No, some people using this word, may be really interested in something you made. But if they just give you this short answer and then immediately go somewhere else, they are usually not.  
 
 But if they truly meant it, they would ask you a few questions. Heck, it they are not a fan of your work, they can still try to see your point of view. People can still be supportive of something they don’t fully understand. Or maybe they can give you some useful criticism. But if they just say “interesting“ and throw it from the window in the speed of lighting, it might be a „That’s weird“ dressed in a nice pair of shoes. Or in a that cozy sweater they got from their good old granny. And you like their grannie’s cookies, don’t you? So just shut your month, eat your cookies, and let me change the “interesting” subject really quickly. 
+
+- [revision](revision.md)
+- [edit](edit.md)
+- [firstdraft](index.md) 
 
