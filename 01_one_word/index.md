@@ -6,7 +6,7 @@ by Natálie Němcová
 
 (ADD ARTWORK)
 
-When I think about a word that triggers a negative response in me, it has to be: interesting. It’s often considered to be a propher reaction to give to things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
+When I think about a word that triggers a negative response in me, it has to be: interesting. (Discuss its various uses and meanings here.) It’s often considered to be a proper reaction to give to things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
 
 What I mean by that are those awkward social interactions when you perhaps made something that you poured your heart into, and this is the response you got. That small moment of silence. Then the air thickens. And the other person has no idea, what to tell you about that so-called MASTERPIECE you just made. So, they simply say: “OH, interesting… “ But what most people mean by that (well, not always, but bear with me) is something like: „Uh…I do not share your emotional investment in this. “  
 
