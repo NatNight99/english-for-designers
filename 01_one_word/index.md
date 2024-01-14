@@ -2,7 +2,7 @@
 
 by Natálie Němcová
 
-4 November 2023
+4th of November 2023
 
 ![White squares on the wooden table with letters written on them forming a word interesting together!](Photo01/interesting_picture.jpg) 
 
