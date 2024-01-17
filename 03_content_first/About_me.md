@@ -28,5 +28,5 @@ Writing stories is my passion. I want to get more into making actual storyboard 
 
 Now to a few of my latest projects we go:
 - [My work](My_work.md)
-- [Writing](writing.md)
+- [Writing](Writing.md)
 - [About me](About_me.md) - you are here
