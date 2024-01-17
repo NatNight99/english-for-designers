@@ -8,7 +8,9 @@ by Natálie Němcová
 
 After years of trying to make an impression on the people around me, I’ve discovered one word that still puzzles me. The word interesting. 
 
-I’m not very fond of this adjective because it can be quite vague and useless. It does not hold a strong meaning, and can be more confusing than anything else. Especially if this is the answer you get when you ask somebody their honest opinion on something that is dear to you. Interesting is a word that solves nothing, and holds a connotation that is neither positive or negative. And that might be a point why it is used to widely and freely. The adjective does not give a clear answer yet offers an easy way out of any conversation. It’s often considered to be a proper reaction to give to things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
+I’m not very fond of this adjective because it’s quite vague and useless. It does not hold a strong meaning, and can be more confusing than anything else. Especially if this is the answer you’ll get when you ask somebody their honest opinion. Interesting is a word that solves nothing, and holds a connotation that is neither positive or negative. And that might be the point why it is used to widely and freely. 
+
+The adjective does not give a clear answer yet offers an easy way out of any conversation. It’s often considered to be a proper reaction to give to things you don’t fully understand. Or when you want to sugarcoat something, you don’t like that much. 
 
 What I mean by that is those awkward social interactions when you perhaps made something that you poured your heart into, and this is the response you got. That small moment of silence. Then the air thickens. And the other person has no idea, what to tell you about that so-called masterpiece you just made. So, they simply say: “Ooh, interesting…“ But what most people mean by that (well, not always, but bear with me) is something like: “Uh…I do not share your emotional investment in this.“
 
