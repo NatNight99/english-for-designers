@@ -4,7 +4,7 @@ by Natálie Němcová
 
 4th of November 2023
 
-![White squares on the wooden table with letters written on them forming a word interesting together!](Photo01/interesting_picture.jpg) 
+![White squares on the wooden table with letters written on them forming a word interesting together!](Pictures/interesting_picture.jpg) 
 
 After years of trying to make an impression on the people around me, I’ve discovered one word that still puzzles me. The word interesting. 
 
