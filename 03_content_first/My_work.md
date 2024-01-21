@@ -38,7 +38,7 @@ The main cast consists of:
   2. Rupert - little energetic bengal kitten who is stealing Blanka’s spotlight and acts like a spoiled brat
   3. Claudius - an old wise male maine coon cat, trying to keep the family together while his age has finally caught up with him
 
-![storyboard_few pages](https://github.com/NatNight99/english-for-designers/assets/129601977/264a415f-f71d-4f94-91a9-483b9801375a)
+![storyboard_few pages](Pictures/storyboard_under_cats_weather_preview.png)
 _A few pages of storyboard_
 
 The storyboard is about how Blanka got a brand new brother for her birthday. Well...let’s just say it was a surprise to die for... 
