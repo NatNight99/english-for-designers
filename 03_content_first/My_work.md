@@ -30,7 +30,7 @@ This was done as a passion project/exersice in story, character design and story
 
 It is a smaller project in the style of "animals going on an adventure", which were popular in the 1980s-1990s in children media, in the life-action form or animated. It tackles the typical life of anthropomorphic cats living their best yet sometimes mischievous lives with a loving owner. Until the family problems arrise. But it also gets into some more serious issues, that even people can face (like feelings of not being enough or coming to terms with our own mortality). 
 
-![Line-up of the 3 main cat characters, concept art](Pictures/cats_line_up_2.png)
+![Line-up of the 3 main cat characters, concept art](Pictures/cats_line_up_3.png)
 _Cat’s together_
   
 The main cast consists of:
