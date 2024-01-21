@@ -7,7 +7,7 @@ _"Following the mysterious disappearance of her dad, 8-year-old Babu is often al
 
 -_Petr Vodička_ 
 
-![White squares on the wooden table with letters written on them forming a word interesting together!](03_content_first/Pictures/Mr. Acornie_concept art.jpg) 
+![White squares on the wooden table with letters written on them forming a word interesting together!](Pictures/babu_in_the_night_city_format.jpg) 
 https://ceeanimation.eu/projects/babu-in-the-night-city-2/ 
 
 ### My work at Anima studio
