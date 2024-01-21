@@ -21,7 +21,7 @@ I have worked on more then 10 characters. I probably did close to 60 (probably m
 
 If things go smoothly, the film should come out in 2026. I hope everything goes well. It could be very important thing for me in the future. 
 
-![babu_hlavicky](https://github.com/NatNight99/english-for-designers/assets/129601977/9e043ea5-93c5-4030-b79b-437dd9ee0999)
+![lip sync of a 3D printed puppet preview](Pictures/babu_lipsynk_format.jpg)
 _Older lip-synk_
 
 ## Cat’s life ("Under the Cat’s Weather")
