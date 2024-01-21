@@ -47,7 +47,7 @@ The storyboard is about how Blanka got a brand new brother for her birthday. Wel
 
 _Mr. Acornie is a little oak pixie, who lives peacefully in a little forest. But that all changes. On one fatefull day, a terrible evil with sharp teeth and two shoelaces walks into his life. Will he win his fight for survival? Or will the terrifying shoe devore him alive? We will see…_
 
-![film shots from Boots walk quietly short animated movie](https://github.com/NatNight99/english-for-designers/assets/129601977/728ec299-7681-4108-adcd-5c6874d6716a)
+![film shots from Boots walk quietly short animated movie](Pictures/boots_walk_quietly_film_preview.png)
 _Boots walk quietly film shots_
 
 _The Boots walk quietly_ is an animated 2-minute short animated film created in the last summer. Genre-wise it is an animated horror with fairy tale aspects sprinkled in. The main themes are facing one’s fear, inanimate objects coming to life and nature vs. man’s creations (which is an old creepy boot that was left to rot in the forest). 
@@ -58,7 +58,7 @@ The film was left open-ended and with a lot of illustrations left to be animated
 
 You can watch the whole short here: https://www.youtube.com/watch?v=OsIBCO0sSIc
 
-![character design 001](https://github.com/NatNight99/english-for-designers/assets/129601977/5672f566-af23-47cd-b910-10758d132a57)
+![character design of Mr. Acornie, a corn forest fairy and the main character of the Boots walk quietly short animated film, concept art](Pictures/Mr._Acornie_concept_art.jpg)
 _Mr. Acornie character exploration_
 
 Read my "One word" essay here: 
