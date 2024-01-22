@@ -22,7 +22,7 @@ Or “Well. I do not like this at all, but I want to be polite about it. I don�
 
 Does it always mean they are not sincere? No. Some people using this word, may be really interested in something you said. But if they just give you this short answer, and then immediately go somewhere else, they are usually not.  
 
-But if they actually meant it, they would ask you some more questions. Heck, if they are not a fan of your work, they can still try to see your point of view. People can still be supportive of something they don’t fully understand. Or maybe they can give you some decent criticism. But if they say “interesting“ and throw it from the window in the speed of lighting, it might be a “That’s weird“ dressed in a nice pair of shoes. Or in a that cozy sweater they got from their good old granny. And you like their grannie’s cookies, don’t you? 
+But if they actually meant it, they would ask you some more questions. Heck, if they are not a fan of your work, they can still try to see your point of view. People can be supportive of something they don’t fully understand. Or maybe they can give you some decent criticism. But if they say “interesting“ and throw it from the window in the speed of lighting, it might be a “That’s weird“ dressed in a nice pair of shoes. Or in a that cozy sweater they got from their good old granny. And you like their grannie’s cookies, don’t you? 
 
 So just shut your mouth, eat your cookies, and let me change the “interesting“ subject really quickly. 
 
