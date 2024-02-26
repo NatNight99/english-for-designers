@@ -12,7 +12,7 @@ So here are a few which I think are pretty good at what they are trying to sell:
 3. Wendy’s and Duolingo - those brands are not very familiar to me but from what I know about them is their up to date and quick witted style of humor from their social media. I kind of like their cheesy and quick style of humor. They are more suited for people that spend their timeo on the internet and they know what’s up. I also like, how they can be daring and playful with their audience. And also Wendy’s have a pretty funny rivalry with other fast food company and I find it pretty hilarious. 
 
 
-## Voice 
+## Tone of Voice 
 
 1. Clear and straight to the point - no need to beat around the bush too much.
 2. Clever yet personal and simple - I think you can explain a lot of complex subject matters while not talking down to your audience.
@@ -20,6 +20,14 @@ So here are a few which I think are pretty good at what they are trying to sell:
 4. Witty - a bit of humor is a great instrument to grab your readers.
 5. Trustworthy - the trust is important, you need to back up your claims and resources. I despise manipulative behaviour. 
 
-## Tone 
 
 ## Style
+
+1. Use shorter sentences and easier terminology
+2. Be direct and truthful to your readers
+3. Never talk down to your readers 
+4. Use slang sparingly
+5. Try to sound cultured yet still down to earth and personal
+6. Don’t sugarcoat things and use a bit of "English dry humour" when things get too real
+7. Be clear and specific
+8. You can use a little metaphors and hidden jokes but don’t try to sound more clever then you really are
