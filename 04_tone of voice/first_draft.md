@@ -26,7 +26,7 @@ So here are a few which I think are pretty good at what they are trying to sell:
 1. Use shorter sentences and easier terminology
 2. Be direct and truthful to your readers
 3. Never talk down to your readers 
-4. Use slang sparingly
+4. Use slang sparingly or don’t use it at all 
 5. Try to sound cultured yet still down to earth and personal
 6. Don’t sugarcoat things and use a bit of "English dry humour" when things get too real
 7. Be clear and specific
