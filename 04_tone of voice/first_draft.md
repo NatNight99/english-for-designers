@@ -1,5 +1,5 @@
 # Voice, Tone and style
-To be honest, I’ve never taken very big interest in brands as a whole. I sure prefer some like Wacom or KOH-I-NOOR HARDTMUTH for art resources. And if I really have to grab something to eat really fast and unhealthy, I would most likely choose McDonalds. But do I really care for how those brands sound like...? Oh well, not really, ’ interested in what they have to offer but I don’t need to see what they preach on Twitter. 
+To be honest, I’ve never taken very big interest in brands as a whole. I sure prefer some like Wacom or KOH-I-NOOR HARDTMUTH for art resources. And if I really have to grab something to eat really fast and unhealthy, I would most likely choose McDonalds. But do I really care for how those brands sound like...? Oh well, not really, I’m interested in what they have to offer but I don’t need to see what they preach on Twitter. 
 
 So it was not an easy task for me to choose which I find to be as a good example or which do I really trust. 
 
@@ -31,3 +31,5 @@ So here are a few which I think are pretty good at what they are trying to sell:
 6. Don’t sugarcoat things and use a bit of "English dry humour" when things get too real
 7. Be clear and specific
 8. You can use a little metaphors and hidden jokes but don’t try to sound more clever then you really are
+9. Don’t overexplain things
+10. Be openminded, always look at things from more than one angle, noone thinks the same, try to be empathetic 
