@@ -12,12 +12,13 @@ So here are a few which I think are pretty good at what they are trying to sell:
 3. Wendy’s and Duolingo - those brands are not very familiar to me but from what I know about them is their up to date and quick witted style of humor from their social media. I kind of like their cheesy and quick style of humor. They are more suited for people that spend their timeo on the internet and they know what’s up. I also like, how they can be daring and playful with their audience. And also Wendy’s have a pretty funny rivalry with other fast food company and I find it pretty hilarious. 
 
 
-
 ## Voice 
 
-1. dfahfda
-2. faflhůd
-3. dfhafkd
+1. Clear and straight to the point - no need to beat around the bush too much.
+2. Clever yet personal and simple - I think you can explain a lot of complex subject matters while not talking down to your audience.
+3. Autentic - I want to sound relatable for people to understand me better.
+4. Witty - a bit of humor is a great instrument to grab your readers.
+5. Trustworthy - the trust is important, you need to back up your claims and resources. I despise manipulative behaviour. 
 
 ## Tone 
 
