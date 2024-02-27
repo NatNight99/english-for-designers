@@ -8,8 +8,8 @@ So it was not an easy task for me to choose which I find to be as a good example
 So here are a few which I think are pretty good at what they are trying to sell:
 
 1. Ikea - they are very down to earth, accesible for anyone. Their webpages are really well made, they are practival, friendly and welcoming. 
-2. Wacom - is more reserved yet offer a lot of good tips and learning tutorials for creative people. They have well designed web full that goes well with their products and skillset their users might find helpful.
-3. Wendy’s and Duolingo - those brands are not very familiar to me but from what I know about them is their up to date and quick witted style of humor from their social media. I kind of like their cheesy and quick style of humor. They are more suited for people that spend their timeo on the internet and they know what’s up. I also like, how they can be daring and playful with their audience. And also Wendy’s have a pretty funny rivalry with other fast food company and I find it pretty hilarious. 
+2. Wacom - is more reserved yet offer a lot of good tips and learning tutorials for creative people. They have well designed web that goes well with their products and skillset of their users might find helpful.
+3. Wendy’s and Duolingo - those brands are not very familiar to me but from what I know about them is their up to date and quick witted style of humor from their social media. I kind of like how cheeky they are. They are more suited for people that spend their time on the internet and they know what’s up. I also like, how they can be daring and playful with their audience. And also Wendy’s have a pretty funny rivalry with other fast food company and I find it pretty hilarious. 
 
 
 ## Tone of Voice 
