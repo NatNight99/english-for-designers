@@ -1,6 +1,5 @@
-# Brand research - tone of voice
+# Nike - brand research
 
-## Nike
 
 ### Motto:
 Just do it! 
