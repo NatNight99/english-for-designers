@@ -5,7 +5,7 @@
 Just do it! 
 
 ### Mission statement
-To bring inspiration and innovation to every athlete in the world, If you have a body, you are an atlete
+To bring inspiration and innovation to every athlete in the world. If you have a body, you are an atlete.
 
 ## Voice: 
 - Positive, friendly and motivated
@@ -22,11 +22,14 @@ To bring inspiration and innovation to every athlete in the world, If you have a
 
 ## Tone 
 Feel to believe it 
-- They sound casual, informal, welcoming, thoughtful and straight to the point
+- They sound casual, informal, welcoming, thoughtful and on point
 
 ## Style 
 - Longer and punctual sentences
-- Clear use of words and language
+- Clear and purposeful use of words and language
 - They sound proffesional yet not too formal
-- Assuring, grounded tone of writing yet it commands respect and still feels pretty organic and that they care about what they are saying
+- Use of numbers and statistics of their accomplishments 
+- Motivational storytelling
+- Assuring, grounded tone of writing
+- Respectful and commands respect
 
