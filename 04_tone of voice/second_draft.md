@@ -1,1 +1,9 @@
-#Brand research - tone of voice
+# Brand research - tone of voice
+
+## Apple
+
+
+## Nike
+
+
+## Mcdonalds 
