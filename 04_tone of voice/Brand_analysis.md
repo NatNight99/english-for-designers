@@ -27,9 +27,9 @@ Feel to believe it
 ## Style 
 - Longer and punctual sentences
 - Clear and purposeful use of words and language
-- They sound proffesional yet not too formal
+- Proffesional yet not too formal
 - Use of numbers and statistics of their accomplishments 
 - Motivational storytelling
 - Assuring, grounded tone of writing
-- Respectful and commands respect
+- Respectful yet commands respect
 
