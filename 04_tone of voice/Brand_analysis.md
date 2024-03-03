@@ -8,14 +8,16 @@ Just do it!
 ### Mission statement
 To bring inspiration and innovation to every athlete in the world, If you have a body, you are an atlete
 
-### Voice: 
+## Voice: 
 - Positive, friendly and motivated
 - They promote determination, courage and resilience
 
+### Everyone can be an athlete
 - Positive
-- Inclusive - Everyone can be an athlete
-- Empovering and progressive - They 
-- Inovative - they always try to find new ways to innovate they products
+- Motivational 
+- Inclusive
+- Empovering 
+- Inovative
 - Grounded 
 
 ### Tone 
