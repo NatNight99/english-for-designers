@@ -12,4 +12,6 @@
 4. Confidence (to play without fear or rejection)
 5. Humor (to stay in the open mode)
 
-# Topic 
+## Topic 
+
+# Will I ever tame my almost pet magpies? 
