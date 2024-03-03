@@ -10,4 +10,6 @@
 2. Time (around 1.5 hours)
 3. Time (more time for problem-solving for satisfactory outcome)
 4. Confidence (to play without fear or rejection)
-5. Humor (to stay in the open mode) 
+5. Humor (to stay in the open mode)
+
+# Topic 
