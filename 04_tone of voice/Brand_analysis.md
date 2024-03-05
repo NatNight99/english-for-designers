@@ -1,7 +1,7 @@
 # Nike - brand research
+Nike isn’t just a brand. Nike is your personal coach. 
 
-
-### Motto:
+### Motto
 Just do it! 
 
 ### Mission statement
@@ -34,5 +34,7 @@ Feel to believe it
 - Assuring, grounded tone of writing
 - Respectful yet commands respect
 
-(add webside and Nike wants to be your coach) 
+### Webside link
+https://about.nike.com/en 
+
 
