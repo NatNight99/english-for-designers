@@ -7,7 +7,7 @@ Just do it!
 ### Mission statement
 To bring inspiration and innovation to every athlete in the world. If you have a body, you are an atlete.
 
-## Voice: 
+## Voice
 - Positive, friendly and motivated
 - They promote determination, courage and resilience
 
