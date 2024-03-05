@@ -18,7 +18,7 @@ So here are a few which I think are pretty good at what they are trying to sell:
 2. Clever yet personal and simple - I think you can explain a lot of complex subject matters while not talking down to your audience.
 3. Autentic - I want to sound relatable for people to understand me better.
 4. Witty - a bit of humor is a great instrument to grab your readers.
-5. Trustworthy - the trust is important, you need to back up your claims and resources. I despise manipulative behaviour. 
+5. Trustworthy - trust is important, you need to back up your claims and resources. I despise manipulative behaviour. 
 
 
 ## Style
