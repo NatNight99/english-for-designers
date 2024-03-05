@@ -34,3 +34,5 @@ Feel to believe it
 - Assuring, grounded tone of writing
 - Respectful yet commands respect
 
+(add webside and Nike wants to be your coach) 
+
