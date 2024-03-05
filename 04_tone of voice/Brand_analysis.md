@@ -13,7 +13,8 @@ To bring inspiration and innovation to every athlete in the world. If you have a
 
 ### Everyone can be an athlete
 
-- Positive 
+- Positive
+- Confident
 - Motivational 
 - Inclusive
 - Empovering 
