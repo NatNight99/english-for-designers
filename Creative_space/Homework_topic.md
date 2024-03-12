@@ -14,7 +14,7 @@
 
 ## Topic 
 
-# How friends cost time
+# How friends cost time (and time costs "money")
 I’ve been thinking about this a few months now. As I grew older, I started to realise that socialising and making meaningful connections became harder than they used to be. 
 
 Your time becomes more precious as you venture into adulthood. You can even say: "Time costs money!" Well, more like it costs you the parts of your life, that you can never get back. This is not a game anymore, it has became more serious. You are now resposible for your life. You have something to loose. You cannot run back and cry to your mommy anymore. Oh well, you can, but it would probably be in vein. You simply can’t spend so much time of your life with people that you don’t have that much in common. You have to be more picky, right? That would be unresonable. So we tend to be more careful and judgemental.
