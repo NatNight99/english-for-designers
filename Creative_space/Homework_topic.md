@@ -32,5 +32,4 @@ So, when we take those things into considerations, we find out that our time rea
 
 We don’t know how much time we have in this world. And what really is important sometimes becomes lost in the process of trying to survive your own life and trying to not lose your mind. Friendships need to be nurtured to stay healthy. There is always going to be price to be paid for every decision. The question is, are you ready to gamble? Are you willing to play this game again and more open to outside influences again...?
 
-![image](https://github.com/NatNight99/english-for-designers/assets/129601977/cea8d4c0-7b1d-495f-86ba-315bf9c3b84b)
 
