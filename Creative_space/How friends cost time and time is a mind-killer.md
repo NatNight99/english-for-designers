@@ -1,1 +1,1 @@
-# How friendships cost time and time is a mind-killer
+# How friends cost time and time is a mind-killer
