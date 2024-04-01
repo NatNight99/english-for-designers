@@ -14,6 +14,7 @@
 
 ## Topic 
 
+[Re-write](My_work.md)
 # How friends cost time (and time costs "money")
 
 I’ve been thinking about this a few months now. As I grew older, I started to realize that socializing and making meaningful connections became harder than they used to be.
