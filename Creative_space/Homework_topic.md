@@ -14,7 +14,7 @@
 
 ## Topic 
 
-[Revision and rewrite](How friends cost time and time is a mind-killer.md)
+[Revision and rewrite] (How friends cost time and time is a mind-killer.md)
 
 # How friends cost time (and time costs "money")
 
