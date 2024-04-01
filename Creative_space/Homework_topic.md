@@ -14,7 +14,7 @@
 
 ## Topic 
 
-[How_friends_cost_time and time is a mind-killer](How friends cost time and time is a mind-killer.md)
+[How_friends cost time and time is a mind-killer](How friends cost time and time is a mind-killer.md)
 
 # How friends cost time (and time costs "money")
 
