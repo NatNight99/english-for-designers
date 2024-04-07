@@ -10,10 +10,12 @@ As I grew older and became an adult, I’ve realized, that making any meaningful
 
 First, I’d like to ask you a few questions before we’ll get right into it. 
 
+
 ### 1.	Do you have more than 3 close friends at this moment?
 ### 2.	Are those your childhood friends?
 ### 3.	Do you see each other on the daily basis?
 ### 4.	Can you speak to the openly on about your field of work or study? 
+
 
 Yes, or no? Now that’s up to you to decide. 
 
