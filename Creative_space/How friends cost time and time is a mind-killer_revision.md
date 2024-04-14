@@ -1,6 +1,6 @@
 # How friends cost time and time is mind-killer 
 
-Greetings, dear readers. 
+Greetings. 
 
 Today, I’d like to speak about something that was on my mind for a long time. And that is this rather “uplifting” topic which I named: How friends cost time and time is a mind-killer. 
 
