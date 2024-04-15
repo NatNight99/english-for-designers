@@ -1,4 +1,6 @@
-# Abstract 
+# "The Beginnings of 3D Animation for Children in Czech Republic"
+## Abstract 
+
 The bachelor's thesis on the topic "The Beginnings of 3D Animation for Children in Czech Republic" discusses the period from the turn of the year 2000 to almost the present day. At the beginning, it presents the historical context of the Czech animation industry and the situation that arose after the Velvet Revolution during the privatization of state property. This section is intended to outline the downfall of the Krátký film to the reader. And he also explains how the end of film production in Bratří v triku influenced the further development of Czech animation.
 The main part of the thesis deals with the issue of 3D or CGI (Computer-generated imagery) computer animation and its beginnings in the Czech Republic in the field children’s entertainment, especially in short films.
 
@@ -11,6 +13,3 @@ In individual chapters, I have uncovered the way in which 3D films were produced
 At the end, the thesis reaches a deeper understanding of the historical context and development of 3D animation in Czech conditions. The bachelor’s work can now name individual recurring patterns that the productions shared or how they differed from each other. The research itself has been a great inspiration for the author in her own personal development and it has informed her in which direction this field will probably in the future. The primary purpose of the bachelor's thesis is to describe a slightly neglected topic and what challenges animated projects can face.
 
 The bachelor's thesis is above all a reflection of continuous development. It is a tribute to all creators, who, despite the more difficult conditions, can create their vision and leave their own mark in the Czech animation industry.
-
-
-
