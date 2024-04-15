@@ -1,5 +1,7 @@
 # How friends cost time and time is mind-killer 
 
+![obrazky 001](https://github.com/NatNight99/english-for-designers/assets/129601977/b6ad20c3-c5fd-48d0-864e-c2c498c93701)
+
 Greetings. 
 
 Today, I’d like to speak about something that was on my mind for a long time. And that is a rather “uplifting” topic which I named: How friends cost time and time is a mind-killer. 
