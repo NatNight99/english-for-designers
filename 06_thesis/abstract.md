@@ -17,6 +17,8 @@ The bachelor's thesis is above all a reflection of continuous development. It is
 
 ### Films:
 
+I’m sorry about the quality, but those projects are not very that well known and getting high quality pictures that are in a good format for Github is not exactly easy. 
+
 ![04_Frank dinner is ready](https://github.com/NatNight99/english-for-designers/assets/129601977/ae9a55d7-f389-4ce3-b8e4-137260f04161)
 _Frank, Dinner is ready!_ Alkay studio, 2002 
 
