@@ -1,6 +1,7 @@
 # How friends cost time and time is mind-killer 
 
 [Presentation here](https://drive.google.com/drive/u/1/folders/1toHcNJ4dhU1UMOgTC0AVt29fZnUJL81Z)
+
 [My voiceover Tedtalk here](https://drive.google.com/drive/u/1/folders/1toHcNJ4dhU1UMOgTC0AVt29fZnUJL81Z)
 
 Greetings. 
