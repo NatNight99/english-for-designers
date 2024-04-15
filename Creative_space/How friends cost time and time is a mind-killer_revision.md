@@ -1,7 +1,5 @@
 # How friends cost time and time is mind-killer 
 
-![obrazky 001](https://github.com/NatNight99/english-for-designers/assets/129601977/b6ad20c3-c5fd-48d0-864e-c2c498c93701)
-
 Greetings. 
 
 Today, I’d like to speak about something that was on my mind for a long time. And that is a rather “uplifting” topic which I named: How friends cost time and time is a mind-killer. 
@@ -11,6 +9,8 @@ It is not a very easy thing to talk about, but I’ll try to be as objective as 
 As I grew older and became an adult, I’ve realized, that making any meaningful connection was getting harder than before. And that partly goes to the nature of time itself.
 
 But first, I’d like to ask you a few questions before we’ll get right into it. 
+
+![obrazky 001](https://github.com/NatNight99/english-for-designers/assets/129601977/b6ad20c3-c5fd-48d0-864e-c2c498c93701)
 
 
 ### 1.	Do you have more than 3 close friends at this moment?
