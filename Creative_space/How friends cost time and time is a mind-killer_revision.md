@@ -23,6 +23,8 @@ Yes, or no? Now that’s up to you to decide.
 
 These kinds of questions were haunting me for some time now. Maybe ever since I was 13 years old. And I had to know, if I’m alone in this or not. 
 
+![obrazky 002](https://github.com/NatNight99/english-for-designers/assets/129601977/9590051b-f07e-447d-a28a-800a9522045e)
+
 ## Childhood is timeless 
 
 When I was thinking about the time, I was kid, I’ve concluded that making friends might have been less complicated. It was probably easier compared to my present day. Thanks to a few factors. 
