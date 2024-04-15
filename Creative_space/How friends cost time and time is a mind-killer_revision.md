@@ -71,7 +71,7 @@ And don’t get me started on how bad people are at communication. And that can 
 
 But wait. It gets even better. 
 
-
+![obrazky 004](https://github.com/NatNight99/english-for-designers/assets/129601977/b8e69555-8d30-4514-a13d-c371d4674660)
 
 ## I suck at “adulting”  
 
