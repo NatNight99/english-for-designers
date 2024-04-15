@@ -117,6 +117,6 @@ But…if it’s true and strong enough, it will hold both of you in the darkest 
 
 ### Process:
 - [Storytelling_first draft](Creative_space/Homework_topic.md)
-- [Storytelling_first draft](Creative_space/How_friends_cost_time_and_time_is_a_mind-killer.md)
+- [Storytelling_second_draft](Creative_space/How_friends_cost_time_and_time_is_a_mind-killer.md)
 
 
