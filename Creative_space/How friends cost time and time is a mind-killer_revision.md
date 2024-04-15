@@ -91,7 +91,7 @@ I know that this is the part of growing up, but it still makes me sad. And those
 
 But I still want to believe that if you truly love someone as a dear friend, you’ll try to stay in contact with them, to find the will and time to do it, before it’s too late. And you never know, when that’s going to be… 
 
-
+![obrazky 005](https://github.com/NatNight99/english-for-designers/assets/129601977/f91408ac-629c-466f-9965-99a7adc14781)
 
 ## What really matters
 
@@ -112,4 +112,6 @@ I’m still young. Yes, I’m an overthinker and I’m not a relationship expert
 I just hope I’ll get my priorities straight one day. I hope there’s still enough time left. Because time is a mind-killer. And yes, friends do cost you time and parts of your life and soul. They can make it into a wonderful experience, yet it can hurt like hell when they leave. And sometimes you argue, and things get messy. 
 
 But…if it’s true and strong enough, it will hold both of you in the darkest of times. 
+
+![obrazky 006](https://github.com/NatNight99/english-for-designers/assets/129601977/b6c6e51e-9759-43e1-b38b-dd19b816944d)
 
