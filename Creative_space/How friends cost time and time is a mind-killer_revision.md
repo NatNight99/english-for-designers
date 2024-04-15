@@ -39,6 +39,8 @@ Childhood is a magical time where we make memories that will build up most of ou
 
 But childhood is not as timeless as we think. And we will lose the “time does not hold that much power over us” attitude soon enough.
 
+![obrazky 003](https://github.com/NatNight99/english-for-designers/assets/129601977/362c9fd0-8a61-40c9-bbd4-7357f4b1e101)
+
 ## And everyone lived peacefully…until puberty and responsibility have attacked! 
 
 Puberty comes and hits us like a brick in the face. Everything becomes more complex and complicated. Relationships are no exception to the rule. 
@@ -69,7 +71,7 @@ And don’t get me started on how bad people are at communication. And that can 
 
 But wait. It gets even better. 
 
-![obrazky 002](https://github.com/NatNight99/english-for-designers/assets/129601977/9590051b-f07e-447d-a28a-800a9522045e)
+
 
 ## I suck at “adulting”  
 
@@ -89,7 +91,7 @@ I know that this is the part of growing up, but it still makes me sad. And those
 
 But I still want to believe that if you truly love someone as a dear friend, you’ll try to stay in contact with them, to find the will and time to do it, before it’s too late. And you never know, when that’s going to be… 
 
-![obrazky 004](https://github.com/NatNight99/english-for-designers/assets/129601977/b8e69555-8d30-4514-a13d-c371d4674660)
+
 
 ## What really matters
 
