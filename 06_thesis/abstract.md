@@ -15,6 +15,8 @@ At the end, the thesis reaches a deeper understanding of the historical context 
 
 The bachelor's thesis is above all a reflection of continuous development. It is a tribute to all creators, who, despite the more difficult conditions, can create their vision and leave their own mark in the Czech animation industry.
 
+### Films:
+
 ![04_Frank dinner is ready](https://github.com/NatNight99/english-for-designers/assets/129601977/ae9a55d7-f389-4ce3-b8e4-137260f04161)
 _Frank, Dinner is ready!_ Alkay studio, 2002 
 
