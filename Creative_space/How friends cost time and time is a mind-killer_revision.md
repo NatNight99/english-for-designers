@@ -115,3 +115,8 @@ But…if it’s true and strong enough, it will hold both of you in the darkest 
 
 ![obrazky 006](https://github.com/NatNight99/english-for-designers/assets/129601977/b6c6e51e-9759-43e1-b38b-dd19b816944d)
 
+### Process:
+- [Storytelling_first draft](Creative_space/Homework_topic.md)
+- [Storytelling_first draft](Creative_space/How_friends_cost_time_and_time_is_a_mind-killer.md)
+
+
