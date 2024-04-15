@@ -1,5 +1,8 @@
 # How friends cost time and time is mind-killer 
 
+[Presentation here](https://drive.google.com/drive/u/1/folders/1toHcNJ4dhU1UMOgTC0AVt29fZnUJL81Z)
+[My voiceover Tedtalk here](https://drive.google.com/drive/u/1/folders/1toHcNJ4dhU1UMOgTC0AVt29fZnUJL81Z)
+
 Greetings. 
 
 Today, I’d like to speak about something that was on my mind for a long time. And that is a rather “uplifting” topic which I named: How friends cost time and time is a mind-killer. 
