@@ -30,3 +30,5 @@ I have been on this path for a long time now. It’s undestandable that it get�
 But before I can face the world I need to face myself first. It’s not going to be easy but I have to try. Because noone else can. My own decisions got me into this situation and now I have to face it head on. I have a life to live. I don’t know where it’s goint to lead me. All I understand is that I cannot go on like this and something has to change. 
 
 Looks like I’m going to get be my own knight in a shinning armour after all...Fighting against my own windmills called "The human psyche". 
+
+![DQ-Screen-Shot-2015-12-04-at-4 10 29-PM-29wbxtz-1024x830](https://github.com/NatNight99/english-for-designers/assets/129601977/0f0bfd71-36fa-4e7a-a9bf-66970c111f4b)
