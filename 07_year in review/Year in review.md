@@ -29,4 +29,4 @@ I have been on this path for a long time now. It’s undestandable that it get�
 
 But before I can face the world I need to face myself first. It’s not going to be easy but I have to try. Because noone else can. My own decisions got me into this situation and now I have to face it head on. I have a life to live. I don’t know where it’s goint to lead me. All I understand is that I cannot go on like this and something has to change. 
 
-
+Looks like I’m going to get be my own knight in a shinning armour after all...
