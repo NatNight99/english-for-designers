@@ -23,17 +23,24 @@ I’m sorry about the quality, but those projects are not very that well known a
 
 ![frank_dinner_is_ready](https://github.com/NatNight99/english-for-designers/assets/129601977/32a1d399-3c3e-4208-8334-237ee6da8615)
 _Frank, Dinner is ready!_ Alkay studio, 2002 
-_A boy named František (Frank) is trying to find the answer for quite ordinary question: The origin and the purpose of light in the streets! His mind is occupied by the town creeks which when lit are becoming chamber scenes of mysterious stories or dance-floors of lights. These fantasy images, the other side of the town hustles the boy to set out to roam the streets. He meets the lamp-man, gets aquainted with him and the boy and the old man become friends. They are bound together by the same concern. The light of the lamps and the lanterns. Daily bread for the old man, inspiration to gorgeous images for the boy, sharing of the path for both. They are walking thru the town lighting it up and down. One morning the whole town is lit. The boy runs down the streets looking for his friend but the old man is vanished. The blue feeling for the loss mingles with beautiful images of their walks._
+
+A short animated movie about a small boy who befriends an old lamp-man. 
 
 ![Three_pigs](https://github.com/NatNight99/english-for-designers/assets/129601977/868d5448-c5c9-4c38-a0c6-4e7f0941e2d8)
 _Three Little pigs_ Alkay studio, 2008 
 
+An animated series about the Three little pigs, their adventures and never ending conflicts with three wolfs (and guess what, one of them was dog the whole time, dun dun duuun). 
+
 ![Goat_story](https://github.com/NatNight99/english-for-designers/assets/129601977/33d3ce88-d81b-44b4-bb99-1aea296ed07d)
 _Goat Story_ Arts and Animation studio, 2008
 
+The first full-length 3D animated film about a goat and her villager named Jemmy and their encounter with the legendary Old Prague during the reign of Charles IV. 
+
 ![Vincent_film](https://github.com/NatNight99/english-for-designers/assets/129601977/6f59ed20-4d76-43e7-820d-5d78cb106109)
 _Car Fairy tales: Vincent_ Tricks vfx. Prague, 2011 
+A short 3D film included in a cinematic release called "Car Fairy tales" which includes 4 animated movies from different artrists and made in a different animation. Vincent is a story about a wide-eyed genius car constructor who will "make cars cool again" in a futuristic world where there is no place for them anymore. 
 
 ![Smallest_elephant](https://github.com/NatNight99/english-for-designers/assets/129601977/06d5d5db-97e7-47e6-96e4-aff808d3633c)
 _The Smallest Elephant in the World_ Eallin studio, 2013
 
+A succesful series about a small elephant called Bedříšek about his adventures with his animal friends in the African savana. 
