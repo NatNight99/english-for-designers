@@ -27,20 +27,20 @@ I’m sorry about the quality, but those projects are not very that well known a
 A short animated movie about a small boy who befriends an old lamp-man. 
 
 ![Three_pigs](https://github.com/NatNight99/english-for-designers/assets/129601977/868d5448-c5c9-4c38-a0c6-4e7f0941e2d8)
-### Three Little pigs Alkay studio, 2008 
+### Three Little pigs, Alkay studio, 2008 
 
 An animated series about the Three little pigs, their adventures and never ending conflicts with three wolfs (and guess what, one of them was dog the whole time, dun dun duuun). 
 
 ![Goat_story](https://github.com/NatNight99/english-for-designers/assets/129601977/33d3ce88-d81b-44b4-bb99-1aea296ed07d)
-### Goat Story Arts and Animation studio, 2008
+### Goat Story, Arts and Animation studio, 2008
 
 The first full-length 3D animated film about a goat and her villager named Jemmy and their encounter with the legendary Old Prague during the reign of Charles IV. 
 
 ![Vincent_film](https://github.com/NatNight99/english-for-designers/assets/129601977/6f59ed20-4d76-43e7-820d-5d78cb106109)
-### Car Fairy tales: Vincent Tricks vfx. Prague, 2011 
+### Car Fairy tales: Vincent, Tricks vfx. Prague, 2011 
 A short 3D film included in a cinematic release called "Car Fairy tales" which includes 4 animated movies from different artrists and made in a different animation. Vincent is a story about a wide-eyed genius car constructor who will "make cars cool again" in a futuristic world where there is no place for them anymore. 
 
 ![Smallest_elephant](https://github.com/NatNight99/english-for-designers/assets/129601977/06d5d5db-97e7-47e6-96e4-aff808d3633c)
-### The Smallest Elephant in the World Eallin studio, 2013
+### The Smallest Elephant in the World, Eallin studio, 2013
 
 A succesful series about a small elephant called Bedříšek and his adventures with his animal friends in the African savana. 
