@@ -32,4 +32,4 @@ But before I can face the world I need to face myself first. It’s not going to
 Looks like I’m going to get be my own knight in a shinning armour after all...Fighting against my own windmills called "The human psyche". 
 
 ![DQ-Screen-Shot-2015-12-04-at-4 10 29-PM-29wbxtz-1024x830](https://github.com/NatNight99/english-for-designers/assets/129601977/0f0bfd71-36fa-4e7a-a9bf-66970c111f4b)
-_Source_ https://blogs.baylor.edu/artsandsciences/2015/12/11/on-don-quixote/
+[Picture source](https://blogs.baylor.edu/artsandsciences/2015/12/11/on-don-quixote/)
