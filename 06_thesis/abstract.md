@@ -21,18 +21,19 @@ The bachelor's thesis is above all a reflection of the continuous development. I
 
 I’m sorry about the quality, but those projects are not very that well known and getting high quality pictures that are in a good format for Github is not exactly easy. 
 
-![04_Frank dinner is ready](https://github.com/NatNight99/english-for-designers/assets/129601977/ae9a55d7-f389-4ce3-b8e4-137260f04161)
+![frank_dinner_is_ready](https://github.com/NatNight99/english-for-designers/assets/129601977/32a1d399-3c3e-4208-8334-237ee6da8615)
 _Frank, Dinner is ready!_ Alkay studio, 2002 
 
-![05_Three little pigs](https://github.com/NatNight99/english-for-designers/assets/129601977/899f8f06-1f2f-470e-a8af-eb67e3aa746f)
+
+![Three_pigs](https://github.com/NatNight99/english-for-designers/assets/129601977/868d5448-c5c9-4c38-a0c6-4e7f0941e2d8)
 _Three Little pigs_ Alkay studio, 2008 
 
-![03_Goat Story](https://github.com/NatNight99/english-for-designers/assets/129601977/cf7d40ff-0c2f-454d-b671-c13eb91dedfe)
+![Goat_story](https://github.com/NatNight99/english-for-designers/assets/129601977/33d3ce88-d81b-44b4-bb99-1aea296ed07d)
 _Goat Story_ Arts and Animation studio, 2008
 
-![01_Vincent](https://github.com/NatNight99/english-for-designers/assets/129601977/bc7e3982-6225-4d1a-84f0-0d5727c2db7b)
+![Vincent_film](https://github.com/NatNight99/english-for-designers/assets/129601977/6f59ed20-4d76-43e7-820d-5d78cb106109)
 _Car Fairy tales: Vincent_ Tricks vfx. Prague, 2011 
 
-![02_Smallest Elephant in the World](https://github.com/NatNight99/english-for-designers/assets/129601977/2bd70c29-aaff-4f32-9160-80f178ca3627)
+![Smallest_elephant](https://github.com/NatNight99/english-for-designers/assets/129601977/06d5d5db-97e7-47e6-96e4-aff808d3633c)
 _The Smallest Elephant in the World_ Eallin studio, 2013
 
