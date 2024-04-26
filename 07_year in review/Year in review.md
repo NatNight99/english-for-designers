@@ -34,7 +34,6 @@ I have been on this path for a long time now. It’s understandable that it gets
 But before I can face the world, I need to face myself first. It’s not going to be easy, but I must try. Because no one else can do that for me. My own decisions got me into this situation and now I must face it head on. I have a life to live. I don’t know where it’s going to lead me. All I understand is that I cannot go on like this and something must change. I must change… 
 
 Looks like I’m going to get be my own knight in a shining armor after all...Fighting against my own windmills called "The human psyche".
-![image](https://github.com/NatNight99/english-for-designers/assets/129601977/6d23dfc3-5f22-46b5-bcf0-6e55edb10cab)
 
 
 ![DQ-Screen-Shot-2015-12-04-at-4 10 29-PM-29wbxtz-1024x830](https://github.com/NatNight99/english-for-designers/assets/129601977/0f0bfd71-36fa-4e7a-a9bf-66970c111f4b)
