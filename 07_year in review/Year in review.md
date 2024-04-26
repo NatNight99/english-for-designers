@@ -2,8 +2,14 @@
 
 To be honest, my last year has been quite difficult in a lot of way. I had to evaluate a lot of things about myself and where I’m going and I’m still not sure what path to take. 
 
+## What’s been going on? 
+- I’ve been working on my thesis "The Beggining of 3D Animation in Czech republic" and although I had a rought start I’ve discovered some really valuable information about Czech film industry as a whole. Some things made me really sad and frustrated because of the state of things but at least I’m informed now. It has been an interesting ride. I’ve met some great authors and people. It was a good experience and I’ve loved meeting those people and finding out more about them. I’m proud myself that I’ve been able to discover something that not a lot of people know about and to shine a bit of light on that.
+- My work at animation studio has been a bit inconstistent over the last months but hey, that’s how it works sometimes. The work comes and sometimes there’s a lot of it and sometimes there’s almost nothing to do. But it’s safe to say that I’m still glad I have a place to work. And it’s still a great honor to have my first important work project a whole full-leight puppetry movie. I hope we will succed because so far the art mastery with the puppets and the enviroment with the animation has been looking very beautiful. It’s amazing to see the story to come to life.
+- I have also spend a lot of time thinking about my future and where to go from here. I don’t think I’m quite ready to go to work yet but I’m not sure which school I’ll be able to get into, because I’ve been studying art for so long there is not much to choose from. There have been a few tries to get to those prestige art school which I failed to get into years before and they ended up in failure. I know it does not dictate my self-worth but it still cost me a lot of energy and time which I now know should have gone to more important matters. And now I’m studying for another exams and I’m starting to loose it. The presure is too much and I’m afraid I won’t be able to get my bachelor film done on time so I’ll probably stay on VŠKK for another year...It makes me feel a bit like a failure to be honest. But because of my mental health I now know that it may be the best way to go.
+- Personal life has been a bit diffucult to be honest. I think I’ve hurt myself again and I need time to revaluate a few things about myself and about my relationships before it get’s totally out of hand. 
+
 ## Where am I and where to go
-Altought I thought I’ve had everything under control and figured out, I was wrong. And I’ve been feeling a bit down and burned out because of it. And that makes me feel weak. My brain and my emotions don’t work well. 
+Altought I thought I’ve had everything under control and figured out, I was wrong. And I’ve been feeling a bit down and burned out because of it. And that makes me feel weak. My brain have not been working prophely for a while now. 
 
 I know I still want to makes something of value. I still want to tell stories, to make art, but sometimes I get too trapped in my own head, unable to fullfill my ambitions. 
 
@@ -22,4 +28,5 @@ I have been on this path for a long time now. It’s undestandable that it get�
 ## The way out 
 
 But before I can face the world I need to face myself first. It’s not going to be easy but I have to try. Because noone else can. My own decisions got me into this situation and now I have to face it head on. I have a life to live. I don’t know where it’s goint to lead me. All I understand is that I cannot go on like this and something has to change. 
+
 
