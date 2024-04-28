@@ -121,6 +121,6 @@ But…if it’s true and strong enough, it will hold both of you in the darkest 
 
 ### Process:
 - [Storytelling first draft](Homework_topic.md)
-- [Storytelling second draft](How_friends_cost_time_and_time_is_a_mind-killer.md)
+- [Storytelling second draft](First_draft_storytelling.md)
 
 
