@@ -9,7 +9,7 @@ To be honest, my last year has been quite difficult in a lot of ways. I had to e
   
 - I have also spend a lot of time thinking about my future and where to go from here. I don’t think I’m quite ready to work full-time yet. But I’m also not sure which school I’ll be able to get into. Because I’ve been studying art for so long that there is not much to choose from. There have been a few tries to get to the prestige art schools which I failed to do years ago, and they ended up in failure. I understand it does not dictate my self-worth, but it still cost me a lot of energy and time which I know should have gone to more important matters. And now I’m studying for other exams and I’m slowly starting to lose it… The pressure is too much and I’m afraid I won’t be able to even get my bachelor film done on time. So, I’ll probably stay on VŠKK for another year...It makes me feel a bit like a failure to be honest. But because of my mental health I now know that it may be my best chance to pull myself together.
 
-- Personal life has been a bit difficult to be honest. I think need time to reevaluate a few things about myself and about my relationships before it gets totally out of hand. 
+- Personal life has been a bit difficult to be honest. I think I need time to reevaluate a few things about myself and about my relationships before it gets totally out of hand. 
 
 ## Where am I and where to go
 
