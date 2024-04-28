@@ -1,5 +1,7 @@
 # "The Beginnings of 3D Animation for Children in Czech Republic"
 
+[All in one - presentation as a video essay](https://drive.google.com/drive/u/1/folders/10hXFxCHI_0m6-XdEWjlufq0alxy9LIKo)
+
 Hello, 
 dear readers or listeners. I’d like to introduce you to my written thesis and research which I’ve been working on for some time now. My main goal here is to cover up the basic idea of the text. Which is why I won’t go into too much detait, because it’s still a lighting talk and there is too much historical context I would need to cover if I got into the specifics. But don’t worry, If it interests you, the thesis will be coming soon. 
 
