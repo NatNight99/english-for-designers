@@ -1,4 +1,8 @@
 # "The Beginnings of 3D Animation for Children in Czech Republic"
+
+Hello, 
+dear readers or listeners. I’d like to introduce you to my written thesis and research which I’ve been working on for some time now. My main goal here is to cover up the basic idea of the text. Which is why I won’t go into too much detait, because it’s still a lighting talk and there is too much historical context I would need to cover if I got into the specifics. But don’t worry, If it interests you, the thesis will be coming soon. 
+
 ## Abstract 
 
 The bachelor's thesis on the topic "The Beginnings of 3D Animation for Children in Czech Republic" discusses the period from the turn of the year 2000 to the almost present day. At the beginning, it presents the historical context of the Czech animation industry and the situation that arose after the Velvet Revolution during the privatization of state property. This section is intended to outline the downfall of the Krátký film (Short film) to the reader. And it also explains how the end of film production in Bratři v triku (Brothers in Tshirt) influenced the further development of Czech animation.
