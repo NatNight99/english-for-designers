@@ -1,4 +1,4 @@
-# "The Beginnings of 3D Animation for Children in Czech Republic"
+# "The Beginnings of 3D Animation for Children in the Czech Republic"
 
 [All in one - presentation as a video essay](https://drive.google.com/drive/u/1/folders/10hXFxCHI_0m6-XdEWjlufq0alxy9LIKo)
 
