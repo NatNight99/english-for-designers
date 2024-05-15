@@ -34,7 +34,7 @@ Feel to believe it
 - Assuring, grounded tone of writing
 - Respectful yet commands respect
 
-### Webside link
+### Website link
 https://about.nike.com/en 
 
 
